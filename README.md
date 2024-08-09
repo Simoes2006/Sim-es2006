@@ -8,6 +8,6 @@ Meu nome é Erick Simões
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos🇦🇿
 
-![](https://media.tenor.com/IwIn6Iz7pvAAAAAM/deslizando-escorregando.gif)
+![](https://media.tenor.com/grK7jtRobfMAAAAM/grand-theft-auto-carl-johnson.gif)
 
 ![](https://media.tenor.com/7os0IUU2QT4AAAAM/cheguei-rodrigo-faro.gif)
