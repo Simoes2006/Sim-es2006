@@ -10,4 +10,4 @@ Meu nome é Erick Simões
 
 ![](https://media.tenor.com/grK7jtRobfMAAAAM/grand-theft-auto-carl-johnson.gif)
 
-![](https://media.tenor.com/7os0IUU2QT4AAAAM/cheguei-rodrigo-faro.gif)
+![](https://media.tenor.com/_VkY3D7F2EgAAAAM/ghost-mw22022-ghost-mw2.gif)
